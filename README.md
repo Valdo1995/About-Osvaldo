@@ -17,4 +17,4 @@ Other Skills:
 - SEO
 - SEO ON PAGE
 - SEO OFF PAGE
-
+- Digital Marketing
